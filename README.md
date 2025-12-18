@@ -1,16 +1,29 @@
-## Hi there 👋
 
-<!--
-**lckxxx/lckxxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+𝐋𝐮𝐜/𝐑𝐚𝐠𝐧 (𝐚𝚗𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗)
 
-Here are some ideas to get you started:
+♥ -- -- -- --
+								
+𝙸𝙽𝚃𝚂: 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+• 𝙸𝚏 𝚢𝚘𝚞 𝚌𝚊𝚖𝚎 𝚏𝚛𝚘𝚖 𝙿𝚃, 𝚒'𝚖 𝚟𝚎𝚛𝚢 𝙲+𝙷!! ദ്ദി(˵•̀ ᴗ -˵). 𝙸 𝚍𝚘𝚗'𝚝 𝚋𝚒𝚝𝚎, 𝙸 𝚙𝚛𝚘𝚖𝚒𝚜𝚎𝚎
+
+• 𝚄𝚗𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚊𝚝𝚒𝚌 𝚙𝚎𝚘𝚙𝚕𝚎 (𝚘𝚋𝚟𝚒𝚘𝚞𝚜𝚕𝚢)
+
+• 𝙸𝙽𝚃 𝙰𝙽𝚈𝚃𝙸𝙼𝙴, 𝙹𝚄𝚂𝚃 𝙿𝙻𝙴𝙰𝚂𝙴 𝙳𝙾𝙽'𝚃 𝙱𝙴 𝚆𝙴𝙸𝚁𝙳 𝙰𝚁𝙾𝚄𝙽𝙳 𝙼𝙴. (𝙸 𝚍𝚘𝚗'𝚝 𝚛𝚎𝚊𝚕𝚕𝚢 𝚖𝚒𝚗𝚍 𝚜𝚑𝚒𝚙𝚜 𝚠𝚑𝚒𝚕𝚎 𝚒'𝚖 𝚞𝚜𝚒𝚗𝚐 𝚊 𝚌𝚎𝚛𝚝𝚊𝚒𝚗 𝚌𝚑𝚊𝚛𝚊𝚌𝚝𝚎𝚛 𝚒𝚗 𝙿𝚃! 𝙸 𝚌𝚘𝚞𝚕𝚍𝚗'𝚝 𝚌𝚊𝚛𝚎 𝚕𝚎𝚜𝚜 𝚊𝚋𝚘𝚞𝚝 𝚙𝚒𝚡𝚎𝚕𝚜 𝚒𝚗 𝚖𝚢 𝚜𝚌𝚛𝚎𝚎𝚗 𝚕𝚘𝚕) ( ˘ ³˘)♥︎
+
+𝙳𝙽𝙸𝚜:
+
+• 𝚂𝚝𝚛𝚒𝚌𝚝𝚕𝚢 𝙳𝙽𝙸 𝚙𝚎𝚘𝚙𝚕𝚎 𝚝𝚑𝚊𝚝 𝚗𝚎𝚎𝚍𝚜 𝚝𝚘 𝚝𝚘𝚞𝚌𝚑 𝚐𝚛𝚊𝚜𝚜. 𝙿𝚕𝚜 𝚍𝚘𝚗'𝚝 𝚋𝚎 𝚜𝚝𝚞𝚙𝚒𝚍 𝚘𝚗𝚕𝚒𝚗𝚎 /𝚐𝚎𝚗. 𝙶𝚘 𝚜𝚒𝚐𝚗 𝚊 𝚓𝚘𝚋 𝚊𝚙𝚙𝚕𝚒𝚌𝚊𝚝𝚒𝚘𝚗.
+
+• 𝚆𝚎𝚒𝚛𝚍 𝚛𝚘𝚕𝚎𝚙𝚕𝚊𝚢𝚎𝚛𝚜 (𝚐𝚞𝚢𝚜 𝙸 𝚜𝚠𝚎𝚊𝚛, 𝙸'𝚟𝚎 𝚑𝚊𝚍 𝚎𝚗𝚘𝚞𝚐𝚑 𝚘𝚏 𝚢'𝚊𝚕𝚕𝚜 𝚋𝚞𝚕𝚕𝚜𝚑𝚒𝚝𝚜)
+
+• 𝙾𝚟𝚎𝚛𝚜𝚎𝚗𝚜𝚒𝚝𝚒𝚟𝚎 𝚌𝚑𝚛𝚘𝚗𝚒𝚌𝚊𝚕𝚕𝚢 𝚘𝚗𝚕𝚒𝚗𝚎 𝚙𝚙𝚕
+
+♠ -- -- -- --
+
+
+#1 千千, leothemio, dory fan
+
+kᥲᥱᥡᥲ ᥣ᥆᥎ᥱr sіᥒᥴᥱ 99ᑲᥴ
+
+![17660232909712474367635943075003](https://github.com/user-attachments/assets/87d7a26b-1472-4e70-9f40-985b4914d8f7)

@@ -1,3 +1,4 @@
+"J̶u̶s̶t̶ h̶o̶w̶ i̶n̶s̶u̶f̶f̶e̶r̶a̶b̶l̶e̶ c̶a̶n̶ y̶o̶u̶ b̶e̶?̶"̶
 ![17660558198232564513971950845999](https://github.com/user-attachments/assets/c42ec9fb-5cde-48be-a28b-b7ce37e89eab)
 
 𝐋𝐮𝐜/𝐑𝐚𝐠𝐧 (𝚊𝚗𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗)

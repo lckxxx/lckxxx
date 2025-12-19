@@ -6,8 +6,8 @@
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
 
 
+" 你到底能有多令人难以忍受？"
 
-"J̶u̶s̶t̶ h̶o̶w̶ i̶n̶s̶u̶f̶f̶e̶r̶a̶b̶l̶e̶ c̶a̶n̶ y̶o̶u̶ b̶e̶?̶"̶
 ![17661050798634755134977536621774](https://github.com/user-attachments/assets/66097fc7-3bee-4eb0-a78e-68fc7c104f8c)
 
 
@@ -43,7 +43,7 @@
 
 ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
 
-![17660566977677195463431422137470](https://github.com/user-attachments/assets/f5f62801-7b0a-40fb-9f49-a47605a81d4c)
+![17661057218625380618614673764840](https://github.com/user-attachments/assets/4f149e19-b25d-45bc-be25-e11c4042f7b7)
 
 
 ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧

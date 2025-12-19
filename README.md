@@ -32,6 +32,7 @@
 𝚇𝚡#1conchhaterxX
 
 𝗞𝗔𝗘𝗬𝗔 𝗟𝗢𝗩𝗘𝗥 𝗦𝗜𝗡𝗖𝗘 𝟵𝟵𝗕𝗖
-![17660232909712474367635943075003](https://github.com/user-attachments/assets/87d7a26b-1472-4e70-9f40-985b4914d8f7)
+![1766105326272496568571372398593](https://github.com/user-attachments/assets/80a76994-0599-49bc-8868-5afff751f176)
+
 ![17660566977677195463431422137470](https://github.com/user-attachments/assets/f5f62801-7b0a-40fb-9f49-a47605a81d4c)
 
